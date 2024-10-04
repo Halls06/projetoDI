@@ -1,3 +1,1 @@
-# etecdesingdeinteriores
-# etecdesingdeinteriores
 # projetodeDI
